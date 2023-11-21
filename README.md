@@ -1,3 +1,2 @@
 # rsschool-cv
-
-https://boolick.github.io/rsschool-cv/
+https://boolick.github.io/rsschool-cv/cv
