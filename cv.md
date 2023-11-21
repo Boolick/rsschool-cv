@@ -6,7 +6,7 @@
 - **Phone:** +84 35 9237442
 - **Email:** [bulloalexander77@gmail.com]
 - **GitHub** [Boolick](https://github.com/Boolick)
-- **Discord** [Alexander Bullo]
+- **Discord** [Alexander Bullo](https://discordapp.com/users/1035100299347644436)
 
 ## Summary
 
